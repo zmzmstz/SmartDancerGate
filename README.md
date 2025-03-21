@@ -1,0 +1,1 @@
+Hi my name is Zeynep Meryem Sertgöz who have university number of 20240808508. And this is my CSE328 lecture project.
